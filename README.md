@@ -33,4 +33,6 @@ Start Trading with Greater Confidence Today
 Whether you are taking your first steps into leveraged products or expanding your existing portfolio, Imperial Markets is here to support you at every turn. With the Tradable Bonus, you get immediate access to enhanced trading capacity, thoughtful flexibility, and a platform built to support your goals. 
 Register an account, fund your trading balance, and unlock the Tradable Bonus — because at Imperial Markets, we believe your trading success is our success
 
+https://imperialmarkets.com/about-us.php
+
 
